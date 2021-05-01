@@ -1,3 +1,2 @@
-# https://fireflame606.github.io/
+# https://fireflame606.github.io/jperm-is-bald/
 jperm is non
-such a great domain mm yes
